@@ -1,5 +1,5 @@
 # 💫 About Me:
-I dont know how to porgram :(
+I dontcode enough - I have a gambling addiction :(
 
 
 ## 🌐 Socials:
